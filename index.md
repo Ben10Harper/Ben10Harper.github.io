@@ -1,7 +1,7 @@
 ## Welcome to my site! :cowboy_hat_face:
-It's *very* bare right now, but I will be adding more with time! :smile:
-A little about me, is that I **LOVE** music and skateboarding, that's mostly what I do in my freetime
-besides homework, hanging out with friends, playing games, or riding my bike around.
+It's *very* bare right now, but I will be adding more with time! :smile: 
+
+A little about me, is that I **LOVE** music and skateboarding, that's mostly what I do in my freetime besides homework, hanging out with friends, playing games, or riding my bike around.
 
 # Recommendations: :musical_note:
 Just some music recommendations for critically underrated songs
